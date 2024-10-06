@@ -2,7 +2,7 @@
 
 
 
-👩🏻‍💻 Software Engineer sharing about my journey and learnings in tech
+👩🏻‍💻 sharing about my journey and learnings in tech
 
 👩🏻‍🎓 Studied business administration at Lagos state university
 
